@@ -1,0 +1,1 @@
+# efektivn---trn-ct-dn-
